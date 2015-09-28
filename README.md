@@ -1,12 +1,12 @@
 # LinkedIn & Interview Prep - 9/23/15 
 
 ## Our Resumes:
-* Checkout the Officer's Resumes for an example of good resumes :wink: :smirk: :wink:  
+* Checkout the Officer's Resumes below for example's of good resumes :smirk:  
 * https://drive.google.com/folderview?id=0B9uqZmwdW6AjOFIzeFl4UGIwNGc&usp=sharing
 
 ## Our LinkedIns:
-* Checkout the Officer's LinkedIn accounts for an example of good resumes :wink: :smirk: :wink:  
-* And connect with us!!!
+* Checkout the Officer's LinkedIn accounts below for some examples. :wink:  
+* And connect with us!
 * [Sergio](https://www.linkedin.com/in/spuleri)
 * [Takashi](https://www.linkedin.com/in/takashiw)
 * [Josh](https://www.linkedin.com/in/joshuakegley)
